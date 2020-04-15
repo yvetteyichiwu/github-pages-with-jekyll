@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Yvette Yi-Chi Wu
 
-I'm glad you are here. I plan to talk about ...
+Hello. I am a first year PhD student in linguistics at Harvard University.
